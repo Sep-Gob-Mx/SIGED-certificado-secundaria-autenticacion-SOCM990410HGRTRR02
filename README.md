@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-SOCM990410HGRTRR02
+SOCM990410HGRTRR02
